@@ -1,1 +1,0 @@
-# komazz.github.io
